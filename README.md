@@ -2,7 +2,10 @@
 ⛧°。 ⋆༺♱༻⋆。 °⛧   @lawyeerr
 my name issss..ace or robin!!! whatver you wanna call me<3 ||    
 i go by he/him :D
-....im a big portgas D. ace and koby enthusiast..fear me!!!
+....
+
+
+im a big portgas D. ace and koby enthusiast..fear me!!!
  !!!!!! im super friendly i swear
  <im in a few fandoms :3 3
 🔥 im taken by 2 lovely people!!! dont flirt im off limits;-; 🌸
