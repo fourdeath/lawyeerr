@@ -1,12 +1,14 @@
  ![94ca1adf3aa927e58e7ec85a8c42b909](https://github.com/user-attachments/assets/a74298bb-0fb7-4714-b49b-d5d264feb63a)
-⛧°。 ⋆༺♱༻⋆。 °⛧   @lawyeerr
-my name issss..ace or robin!!! whatver you wanna call me<3 ||    
+⛧°。 ⋆༺♱༻⋆。 °⛧   @lawyeerr ♥︎ 
+my name issss..ace or robin!!! whatver you wanna call me<3   
 i go by he/him :D
 ....
 
 
-im a big portgas D. ace and koby enthusiast..fear me!!!
- !!!!!! im super friendly i swear
+im a big portgas D. ace and koby enthusiast..fear me!!!!! 
+
+im super friendly i swear
+
  im in a few fandoms :3
 
  
