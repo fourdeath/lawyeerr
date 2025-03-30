@@ -1,27 +1,15 @@
-![afa18ec9c4a3cde68b5c4bde06e45726](https://github.com/user-attachments/assets/4faa5e8d-72d1-4a55-bce9-88a739b61815)
+![914ff991f2391ad29a3f39f7e5ee5e62](https://github.com/user-attachments/assets/173ce0f6-52fa-4c0d-86b0-f8b3557510a9)
+ ✰ *kingdom fall. . .* 
+      
+ *anyway im ami!, or amilia.. im a poly girl :3* -> *🇮🇪🏴󠁧󠁢󠁳󠁣󠁴󠁿*
 
+ ***TAKEN FOREVER.  |💍 > J,S|  12-17-24!!!***
+ -----------------------------------
+ im a lion. raahhwwrr ;3
 
+ i swear im nice fuys...💔
 
-`°。 ⋆༺♱༻⋆。 °
-my name issss..ace or robin!!! whatver you wanna call me<3   
-i go by he/him :3
-....
-my favorite color is blue ^_^
+ ![7f1267597d6fc8c549b2b6484ef646a3](https://github.com/user-attachments/assets/d14efa32-72f1-4819-bf28-39495f87150c)
 
-im a big portgas D. ace enthusiast..fear me!!!!! 
-
-OLD MEN YAOI!!!!!!!!! rogarp i love yuo.
-
- im in a few fandoms :3
-ex: op, jjk, dandadan, squidgame, BNA, jurrasic world/park
- 
- im taken by 2 lovely people!!! dont flirt im off limits;-; 🌸
-..i love learning about new things!!..
-? anyone over 19/20+ dni wahh wahhhh
-
-my discord is: @cutslawyer !! 
- 
- on every other social iamm cutslawyer 
-
-
-🚫 basic dni criteria..proship and all that dni plspls (INCLUDING LUFFY X BOA, LAWLU, ACE X SABO, LUFFY X SABO, AND LUFFY X ACE.)
+***#SABONATION***
+-----------------------------------
